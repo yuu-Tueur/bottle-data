@@ -1,1 +1,0 @@
-tanaka kusai mazide kusai
