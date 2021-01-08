@@ -1,1 +1,0 @@
-tanaka mazide kusainndakedo 
